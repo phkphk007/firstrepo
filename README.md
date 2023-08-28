@@ -9,6 +9,8 @@ HEMANTH KUMAR P
 
 1. ready
     
-1. ready 2
-2. steady
+1. ready 2 .................................................................
+  
+5. reaaadyyyy
+3. steady
 4. goooo
