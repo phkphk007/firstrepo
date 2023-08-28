@@ -10,5 +10,5 @@ HEMANTH KUMAR P
 1. ready
     
 1. ready 2
-3. steady
+2. steady
 4. goooo
